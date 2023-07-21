@@ -1,1 +1,1 @@
-# MyCaptain-Assessment-july-project-1
+# MyCaptain-Assessment-july-projects
